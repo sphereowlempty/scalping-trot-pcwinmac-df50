@@ -1,4 +1,4 @@
-# 
+# Elite scalping trading bot scripts for Mac OS | Ultimato scalping trading bot scripts for PC Windows. Featuring API de exchange descentralizada and pools de liquidez DEX — optimized for maximum performance.
 
 
 
